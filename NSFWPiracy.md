@@ -395,7 +395,7 @@
 * [Ebony Pulse](https://ebonypulse.tv/)
 * [RahaPorn](https://www.rahaporn.com/)
 * [TastyBlacks](https://tastyblacks.com/)
-
+* [EbonyGalore](https://ebonygalore.com)
 ***
 
 # ► Download 
